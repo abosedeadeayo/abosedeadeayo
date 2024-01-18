@@ -1,4 +1,4 @@
-### Hi there, I am @abosedeadeayo👋
+### Hi there, I am Abosede Adeayo👋
 
 **abosedeadeayo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
